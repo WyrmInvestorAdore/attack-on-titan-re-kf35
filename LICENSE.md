@@ -1,4 +1,4 @@
-#  
+#  Experience attack on titan revolution like never before with attack on titan revolution hidden Scripts, the #1 Script. Includes god mode and no clip
 
 
 
